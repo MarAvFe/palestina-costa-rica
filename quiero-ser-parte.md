@@ -7,7 +7,7 @@ Muchas personas sienten indignación por lo que pasa en Palestina, pero **no sab
 No necesitás ser experto en historia para empezar. Leé lo básico:
 
 - Dónde queda Palestina.
-- Qué significan ocupación y genocidio.
+- Qué significan ocupación y [genocidio](https://es.wikipedia.org/wiki/Genocidio).
 - Quiénes son las partes involucradas.
 
 Con eso ya tendrás un marco claro y podrás explicar por qué apoyás la causa.
@@ -19,7 +19,7 @@ El **boicot es una herramienta poderosa**. Empezá poco a poco:
 - Dejá de comprar productos o servicios de unas pocas marcas clave vinculadas a la ocupación.
 - No busqués la pureza absoluta desde el primer día. El objetivo es avanzar, no paralizarse.
 
-Algunos recursos que te pueden ayudar son la ["No Thanks" app](https://play.google.com/store/apps/details?id=com.bashsoftware.boycott&hl=es-419) ([Apple](https://apps.apple.com/us/app/no-thanks-app/id6476206516)) y el sitio de [Boycott, Divestments and Sanctions (BDS)](https://bdsmovement.net/es).
+Algunos recursos que te pueden ayudar son la app "No Thanks" ([Android](https://play.google.com/store/apps/details?id=com.bashsoftware.boycott&hl=es-419), [Apple](https://apps.apple.com/us/app/no-thanks-app/id6476206516)) y el sitio de [Boycott, Divestments and Sanctions (BDS)](https://bdsmovement.net/es).
 
 > NOTA. Las marcas y servicios involucrados son muchos, dejarlos todos o solo algunos puede ser disruptivo y dificil. Que eso no te detenga de empezar, a tu ritmo. BDS se dedica justamente a organizar este esfuerzo y que sea relevante.
 
@@ -27,7 +27,7 @@ Algunos recursos que te pueden ayudar son la ["No Thanks" app](https://play.goog
 
 - Conectate con colectivos y páginas que informan sobre Palestina. Ahí encontrarás:
 
-  1. Noticias confiables.
+  1. Noticias confiables. ([Ground News](https://ground.news/interest/israeli-palestinian-conflict))
   2. Convocatorias a manifestaciones.
   3. Listas actualizadas de empresas a boicotear.
 - Compartí lo que te parezca importante. Difundir también es apoyar.
