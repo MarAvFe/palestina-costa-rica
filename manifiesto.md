@@ -44,3 +44,5 @@ Nacimos como respuesta solidaria frente a las agresiones militares contra Gaza e
 ## Invitación
 
 La Red es abierta a toda persona y colectivo que comparta estos principios. Quien desee unirse debe hacerlo con claridad: apoyamos la liberación de Palestina, no “negociaciones entre iguales” entre ocupante y ocupado. La solidaridad parte de reconocer la asimetría y ponerse del lado del pueblo oprimido.
+
+[¿Cómo empezar?](https://github.com/MarAvFe/palestina-costa-rica/blob/main/quiero-ser-parte.md)
