@@ -36,7 +36,7 @@ Nacimos como respuesta solidaria frente a las agresiones militares contra Gaza e
 
 ## Qué buscamos
 
-1. Denunciar las violaciones de derechos humanos cometidas por Israel.
+1. Denunciar las violaciones de derechos humanos cometidas contra Palestina.
 2. Promover campañas de boicot, desinversión y sanciones (BDS) contra el régimen israelí hasta que cumpla con el derecho internacional.
 3. Informar, educar y movilizar en Costa Rica sobre la causa palestina.
 4. Articular la solidaridad internacionalista con otras luchas de liberación.
