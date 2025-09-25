@@ -1,4 +1,4 @@
-# ¿Querés apoyar a Palestina? Te mostramos cómo:
+# ¿Querés apoyar a Palestina? Te cuento cómo en 3 min:
 
 Muchas personas sienten indignación por lo que pasa en Palestina, pero **no saben cómo transformar ese sentimiento en acción** concreta. Aquí tenés una guía rápida, sencilla y práctica para empezar:
 
