@@ -36,7 +36,7 @@ Podés empezar con [@palestinacostarica](https://www.instagram.com/palestinacost
 
 ## 4. Acercate a organizaciones locales
 
-Escribiles, participá en actividades, escuchá cómo trabajan y preguntá: ¿cómo puedo ayudar?. A veces basta con estar presente en un plantón o colaborar en la logística de una charla. [@palestinacostarica](https://www.instagram.com/palestinacostarica/) es un buen inicio. Actualmente se reúnen los jueves de 4:00pm a 7:00pm en la rotonda de la Hispanidad, San José.
+Escribiles, participá en actividades, escuchá cómo trabajan y preguntá: ¿cómo puedo ayudar?. A veces basta con estar presente en un plantón o colaborar en la logística de una charla. [@palestinacostarica](https://www.instagram.com/palestinacostarica/) es un buen inicio. Actualmente se manifiestan los jueves de 4:00pm a 7:00pm en la rotonda de la Hispanidad, San José.
 
 ## 5. Aportá según tu posibilidad
 
